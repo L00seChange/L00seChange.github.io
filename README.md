@@ -1,4 +1,4 @@
-## Myleigh's dad is AWESOME!!!
+## Myleigh likes tots!!!
 
 You can use the [editor on GitHub](https://github.com/L00seChange/L00seChange.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
